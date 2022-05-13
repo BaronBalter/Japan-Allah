@@ -1,0 +1,2 @@
+# Japan-Allah
+Japan Tokyo
