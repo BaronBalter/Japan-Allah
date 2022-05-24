@@ -1,2 +1,2 @@
 # Japan-Allah
-Japan Tokyo rumppaaa
+Japan Tokyo
